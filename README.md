@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-CACI940509HYNNNS05
+CACI940509HYNNNS05
